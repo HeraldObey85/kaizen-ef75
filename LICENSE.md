@@ -1,4 +1,4 @@
-#  
+#  Experience kaizen like never before with advanced kaizen Script, the #1 Script. Includes custom skins and private server access for unbeatable
 
 
 
